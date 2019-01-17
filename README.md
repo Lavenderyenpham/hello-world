@@ -1,6 +1,7 @@
 # Ông chủ Amazon Jeff Bezos ly hôn: 136 tỷ đô và Amazon đang lưỡng lự.
 
 CEO Amazon Jeff Bezos và vợ MacKenzie Tuttle. Nguồn: U.S. Reuters
+
 ![My workingspace](D:\Hinh1.jpg)
  
 . *Người* sáng lập Amazon, Jeff Bezos, người giàu nhất thế giới và vợ ông ta MacKenzie Tuttle xác nhận sẽ ly hôn đã làm dấy lên câu hỏi - họ sẽ chia tài sản 136 tỷ đô như thế nào?
