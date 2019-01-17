@@ -2,7 +2,7 @@
 
 CEO Amazon Jeff Bezos và vợ MacKenzie Tuttle. Nguồn: U.S. Reuters
 
-![](D:\Hinh1.jpg)
+![1](D:\Hinh1.jpg)
  
 . *Người* sáng lập Amazon, Jeff Bezos, người giàu nhất thế giới và vợ ông ta MacKenzie Tuttle xác nhận sẽ ly hôn đã làm dấy lên câu hỏi - họ sẽ chia tài sản 136 tỷ đô như thế nào?
 . Và điều gì sẽ xảy ra đối với hãng bán lẻ khổng lồ trên Internet - Liệu vợ ông sẽ sở hữu cổ phần, và ông sẽ tiếp tục điều hành công ty như thế nào?
